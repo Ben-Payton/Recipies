@@ -1,0 +1,1 @@
+Boil over moderate heat 9-10 min to 238 F (softball stage)
